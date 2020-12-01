@@ -1,0 +1,6 @@
+-Take a bread .
+-Put cheese on it .
+-Sprinkle corn on it according to your taste.
+-Sprinkle capscicum on it according to your taste.
+-Roast the bread.
+-Serve it properly in a plate with sauces.
